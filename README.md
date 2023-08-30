@@ -1,0 +1,1 @@
+Hello, I'm XxfalexxX00, also known as Falex. My interests include software development, playing games, creating games, and solving problems within games. My English proficiency isn't high, but I am learning English and I have many plans in mind.
